@@ -10,3 +10,4 @@
 - At the beginning of the colonial period, labor was typically unskilled with a shift to skilled labor happening with the introduction of staple crops.
 - Tasks of skilled laborers might include building storage sheds, packing products, and transporting products.
 - As operations grew, white skilled laborers shifted their roles to working as overseerers and managers.
+- The two most requested skills for laborers in the 1640s were construction and carpentry. (Galenson) 
