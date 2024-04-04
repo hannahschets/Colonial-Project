@@ -13,4 +13,4 @@
 - Their main expectation was to provide for themselves through some form of work
 - During the colonial period, jobs were much less split up by gender
   - Women often worked jobs that would later be reserved for men, like blacksmiths
-- Women would very quickly become experts in their fields 
+- Women would very quickly become experts in their fields (Treckel)  
