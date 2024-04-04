@@ -1,4 +1,4 @@
-# Women's Roles and Expectations
+# White Women's Roles and Expectations
 ### Married Women 
 - Women's roles in their homes depended on the supplies they could afford
 - Women were largely reponsible for all the things that happened inside the home
