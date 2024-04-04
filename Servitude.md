@@ -6,5 +6,7 @@
     - Some people were "spirited" or kidnapped to be taken to the New World and sold into servitude (Snyder) 
 
 
-
-
+### Labor
+- At the beginning of the colonial period, labor was typically unskilled with a shift to skilled labor happening with the introduction of staple crops.
+- Tasks of skilled laborers might include building storage sheds, packing products, and transporting products.
+- As operations grew, white skilled laborers shifted their roles to working as overseerers and managers.
