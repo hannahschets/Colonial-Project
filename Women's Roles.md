@@ -22,4 +22,4 @@
   - The public sphere was seen as a man's world.
   - After 1700, a woman's value was found in their femininity, not in their political status.
   - Some women made their own methods of participating in the public sphere.
-    - Some women made charity organizations or participated in church activities and groups. 
+    - Some women made charity organizations or participated in church activities and groups. (Norton) 
